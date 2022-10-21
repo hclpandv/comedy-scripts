@@ -1,5 +1,9 @@
 #### comedy Script
 
+Ocasion: Diwali Party
+
+Audience: Indian, Multiligual, English Speaking, South and North Indians
+
 Ideas:
 
 1. SomeThing
