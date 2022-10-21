@@ -1,6 +1,6 @@
 #### comedy Script
 
-Ocasion: Diwali Party
+Ocasion: Diwali Party | Malaysia | Kualalumpur
 
 Audience: Indian, Multiligual, English Speaking, South and North Indians
 
